@@ -1,1 +1,1 @@
-# Diamont
+# Diamond
